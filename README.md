@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Aboelsebah
+- 👀 I’m interested in different stuff
+- 🌱 I’m currently learning somme other different stuff
+- 💞️ I’m looking to collaborate on some weird stuff
+- 📫 How to reach me ,, you really still want to reach me.. no
